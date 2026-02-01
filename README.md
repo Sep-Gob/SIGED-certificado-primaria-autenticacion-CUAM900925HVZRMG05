@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-CUAM900925HVZRMG05
+CUAM900925HVZRMG05
